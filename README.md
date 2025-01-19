@@ -1,4 +1,4 @@
-Sure! Here's the documentation written in English with a professional and engaging tone:
+
 
 ---
 
